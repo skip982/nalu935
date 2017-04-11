@@ -10,13 +10,13 @@
 						    
 						    (Lyrics)
 
-I used to see these niggas on my twitter feed man,
+* I used to see these niggas on my twitter feed man,
 
 [Crystal Sec](http://www.twitter.com/crystalsec_) well known to start shit
-Pistol on me nigga, ain't no picking on me
-A dark ally is where your body will lay
-Heard Barack Obama whisper asalaam alaikum
-Came to the realization that your “exploits” were fake, damn..
+* Pistol on me nigga, ain't no picking on me
+* A dark ally is where your body will lay
+* Heard Barack Obama whisper asalaam alaikum
+* Came to the realization that your “exploits” were fake, damn..
 
 you nearly broke my heart
 I really thought you niggas really owned them exploits
