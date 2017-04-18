@@ -4,38 +4,36 @@
 
 I used to see these niggas on my twitter feed man,
 
-crystal sec well known to start shit
-Pistol on me nigga, ain't no picking on me
-A thug holiday is where your body lay
+crystal sec well known to start shit,
+Pistol on me nigga, ain't no picking on me.
+A thug holiday is where your body lay,
 I once heard Barack Obama whisper asalaam alaikum,
 Late came to the realization that your “exploits” were fake, damn..
 
-you nearly broke my heart
-I really thought you niggas really owned them exploits
-I used to be friends with you niggas
-Hard to point a finger when you live a life of sin
-I'm gonna bring my niggas with me if I lose or win
+you nearly broke my heart,
+I really thought you niggas really owned them exploits,
+I used to be friends with you niggas,
+Hard to point a finger when you live a life of sin,
+I'm gonna bring my niggas with me if I lose or win,
 Bought a fleet of devices,
 This little thing of ours,
 Such a head rush until the day the feds rush you
-That's when you niggas wish you put your bread up
+That's when you niggas wish you put your bread up,
 Fast money comin' slow, you better think quick
-Rap game, so much fuck shit done
+Rap game, so much fuck shit done,
 That's why this .45 in my boxers
 Shots fired, home invasion 
 Red beam detonators, whos the bomb now?
-Look you in your eyes nigga, before I say good night
-pray that those exploits get to see the day of light
+Look you in your eyes nigga before I say good night,
+pray that those exploits get to see the day of light.
 Damn, ItzGeb & pythonsn0w, I use to be friends with you niggas,
-2klasic you use to be my right hand man,
-this stupid beef over a program,
 Hate that it came to this..
 damn..
 
-Shootin' dope, using coke, selling bricks acting like you the real Folks
-Sacrificin' half your life for your new little gay cult (crystal sec)
-I pray you find the kindness in your heart
-I watched this whole debacle so I'm part to blame
+Shootin' dope, using coke, selling bricks acting like you the real Folks,
+Sacrificin' half your life for your new little gay cult (crystal sec),
+I pray you find the kindness in your heart,
+I watched this whole debacle so I'm part to blame.
 Last request, can all bugs please get disclosed?
 
 Can't believe this shit homie,
