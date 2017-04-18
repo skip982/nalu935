@@ -3,15 +3,12 @@
 						    (Lyrics)
 
 I used to see these niggas on my twitter feed man,
-I used to be like, "Yo them niggas so blessed, you know what I'm sayin'?"
-If I had that opportunity, you know what I'm sayin'?
 
 crystal sec well known to start shit
 Pistol on me nigga, ain't no picking on me
-We veterans so it's better if you go get your army
 A thug holiday is where your body lay
-Heard Barack Obama whisper asalaam alaikum
-Came to the realization that your “exploits” were fake, damn..
+I once heard Barack Obama whisper asalaam alaikum,
+Late came to the realization that your “exploits” were fake, damn..
 
 you nearly broke my heart
 I really thought you niggas really owned them exploits
