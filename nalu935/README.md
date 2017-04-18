@@ -1,12 +1,4 @@
--## This is licensed under the Anyone But SEIGPS license.
- - 
- ----
- - 
- -## sorry 4 indentation but i was using nano lmao
- -
- ----
- - 	 
- 					     Friends Become Rivals.
+					     Friends Become Rivals.
 						    
 						    (Lyrics)
 
