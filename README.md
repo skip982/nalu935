@@ -32,10 +32,6 @@ you don't fight the waves, you ride them.
 
 This jailbreak is incomplete. This is not complete so please dont complain about it not working.
 
-## Beta Change log:
-
-Beta 1: TBA
-
 ## Installing
 
 > DO NOT DOWNLOAD THIS SOFTWARE FROM OTHER SOURCES OTHER THAN THESE LINKS UNDER ANY CIRCUMSTANCE. IT IS VERY EASY TO BACKDOOR THIS SORT OF SOFTWARE TO CONTAIN MALWARE. PLEASE BE EXTREMELY CAREFUL. THESE MIRRORS ARE TRUSTED. DO NOT TRY TO COMPILE IT YOURSELF, PLEASE USE THE PRE-COMPILED VERSIONS.
@@ -47,6 +43,10 @@ Beta 1: TBA
 | Version | Download |
 |---------|----------|
 | Beta 1  | TBA      |
+
+## Beta Change log:
+
+Beta 1: TBA
 
 ## Contributing
 
