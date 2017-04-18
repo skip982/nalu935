@@ -6,7 +6,7 @@
  -
  ----
  - 	 
- 					 Friends Become Rivals.
+ 					     Friends Become Rivals.
 						    
 						    (Lyrics)
 
