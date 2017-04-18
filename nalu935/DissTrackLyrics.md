@@ -5,39 +5,27 @@
 
 I used to see these niggas on my twitter feed man,
 
-crystal sec well known to start shit,
+You niggas well known to start shit,
 
-Pistol on me nigga, ain't no picking on me.
+Pistol on me nigga, ain't no more picking on me.
 
-A thug holiday is where your body lay,
-
-I once heard Barack Obama whisper asalaam alaikum,
+A thug holiday is where your body lay, I once heard Barack Obama whisper asalaam alaikum,
 
 Late came to the realization that your “exploits” were fake, damn..
 
 you nearly broke my heart,
 
-I really thought you niggas really owned them exploits,
+I really thought you niggas really owned them exploits, I used to be friends with you niggas.
 
-I used to be friends with you niggas,
-
-Hard to point a finger when you live a life of sin,
-
-I'm gonna bring my niggas with me if I lose or win,
+Hard to point a finger when you live a life of sin, I'm gonna bring my niggas with me if I lose or win.
 
 Bought a fleet of devices,
 
-This little thing of ours,
+This little thing of ours is such a head rush until the day the feds rush you, That's when you niggas wish you put your bread up.
 
-Such a head rush until the day the feds rush you
+Fast money comin' slow, you better think quick.
 
-That's when you niggas wish you put your bread up,
-
-Fast money comin' slow, you better think quick
-
-Rap game, so much fuck shit done,
-
-That's why this .45 in my boxers
+Rap game, so much fuck shit done, That's why this .45 in my boxers.
 
 Shots fired, home invasion, Red beam detonators, whos the bomb now?
 
