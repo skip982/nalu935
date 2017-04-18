@@ -39,44 +39,25 @@ Rap game, so much fuck shit done,
 
 That's why this .45 in my boxers
 
-Shots fired, home invasion 
+Shots fired, home invasion, Red beam detonators, whos the bomb now?
 
-Red beam detonators, whos the bomb now?
+Look you in your eyes nigga before I say good night, pray that those exploits get to see the day of light.
 
-Look you in your eyes nigga before I say good night,
-
-pray that those exploits get to see the day of light.
-
-Damn, ItzGeb & pythonsn0w, I use to be friends with you niggas,
-
-Hate that it came to this, damn..
+Damn, ItzGeb & pythonsn0w, I use to be friends with you niggas, Hate that it came to this.
 
 Shootin' dope, using coke, selling bricks acting like you the real Folks,
 
-Sacrificin' half your life for your new little gay cult (crystal sec),
+Sacrificin' half your life for your new little gay cult,
 
-I pray you find the kindness in your heart,
+I pray you find the kindness in your heart, I watched this whole debacle so I'm part to blame.
 
-I watched this whole debacle so I'm part to blame.
+Can't believe this shit homie, How the fuck nigga, you touch my code nigga?
+And what hurt me the most nigga, Is how you did me like that nigga.
 
-Can't believe this shit homie,
+I was loyal to you niggas, You put my nigga @sn0wFX in the hole, homie.
 
-How the fuck nigga, you touch my code nigga?
+I don't feel you for that my nigga, That shit hurt me, you understand me?
 
-And what hurt me the most nigga,
-
-Is how you did me like that nigga.
-
-I was loyal to you niggas,
-
-You put my nigga @sn0wFX in the hole, homie.
-
-I don't feel you for that my nigga,
-
-That shit hurt me, you understand me?
-
-It's painful what you see real niggas do when they get the opportunity,
-
-When they get the bag.
+It's painful what you see real niggas do when they get the opportunity.
 
 \*
