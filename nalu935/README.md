@@ -1,4 +1,4 @@
--## This is licensed under the Anyone But license.
+-## This is licensed under the Anyone But SEIGPS license.
  - 
  ----
  - 
