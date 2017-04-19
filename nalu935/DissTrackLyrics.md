@@ -19,13 +19,9 @@ I really thought you niggas really owned them exploits, I used to be friends wit
 
 Hard to point a finger when you live a life of sin, I'm gonna bring my niggas with me if I lose or win.
 
-Bought a fleet of devices,
+This little thing of ours is such a head rush until the day the feds rush you, That's when you niggas really wish you put your bread up.
 
-This little thing of ours is such a head rush until the day the feds rush you, That's when you niggas wish you put your bread up.
-
-Fast money comin' slow, you better think quick.
-
-Rap game, so much fuck shit done, That's why this .45 in my boxers.
+Fast money comin' slow, you better think quick, Rap game so much fuck shit done, That's why this .45 in my boxers.
 
 Shots fired, home invasion, Red beam detonators, whos the bomb now?
 
