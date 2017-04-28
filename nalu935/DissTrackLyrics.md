@@ -9,13 +9,13 @@ You niggas well known to start shit,
 
 Pistol on me nigga, ain't no more picking on me.
 
-A thug holiday is where your body lay, I once heard Barack Obama whisper asalaam alaikum,
+A thug holiday is where your body lay,
 
 Late came to the realization that your “exploits” were fake, damn..
 
-you nearly broke my heart,
+you nearly broke my heart, I really thought you niggas really owned them exploits.
 
-I really thought you niggas really owned them exploits, I used to be friends with you niggas.
+I used to be friends with you niggas.
 
 Hard to point a finger when you live a life of sin, I'm gonna bring my niggas with me if I lose or win.
 
