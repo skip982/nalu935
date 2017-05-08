@@ -57,14 +57,16 @@ Please be sure to check if the pull request has been made before, before creatin
 
 (Anything you add, you will get credit for.)
 
-1. offsets.
+1. offsets. [here]() and [here]()
 
-2. gui for the jailbreak app, make one with xcode. I have provided the app icon for the app.
+2. gui for the jailbreak app, make one with xcode. Insert [here](https://github.com/osxusr/nalu935/tree/master/nalu935/Base.Iproj)
 
-3. viewcontroller code for the app.
+3. I have provided the app icons for the app [here](https://github.com/osxusr/nalu935/tree/master/nalu935/Media.xcassets/AppIcon.appiconset).
 
-4. exploit.
+4. viewcontroller code for the app. [here]() and [here]()
 
-5. sandbox escape.
+5. exploit.
 
-6. device support code.
+6. sandbox escape.
+
+6. device support code. [here]() and [here]()
