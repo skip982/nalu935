@@ -52,3 +52,17 @@ Beta 1: TBA
 
 Create a fork of the repository, make your changes and then create a pull request.
 Please be sure to check if the pull request has been made before, before creating a new one.
+
+## Things I need for the jailbreak:
+
+1. Offsets.
+
+2. GUI for the jailbreak app, make one with xcode. I have provided the app icon for the app.
+
+3. Viewcontroller code for the app.
+
+4. exploit.
+
+5. sandbox escape.
+
+6. 
