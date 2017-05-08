@@ -55,7 +55,7 @@ Please be sure to check if the pull request has been made before, before creatin
 
 ## Things I need for the jailbreak:
 
-(Anything you add, you will get credit for.)
+**Anything you add, you will get credit for.**
 
 1. offsets. [here](https://github.com/osxusr/nalu935/blob/master/nalu935/offsets.c) and [here](https://github.com/osxusr/nalu935/blob/master/nalu935/offsets.h)
 
