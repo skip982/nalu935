@@ -2,7 +2,7 @@
 
 ![Nalu logo](https://github.com/osxusr/nalu935/blob/master/nalu935/Media.xcassets/AppIcon.appiconset/Icon-83.5%402x.png)
 
-A "incomplete" iOS jailbreak for 32-bit devices ( created by [iosusr](https://twitter.com/iosusr) )
+A "incomplete" semi-untethered jailbreak for 32-bit devices on iOS 9.3.5 Only ( created by [iosusr](https://twitter.com/shp0ng13) )
 
 Lets make a 32-Bit iOS 9.3.5 Jailbreak for all 32-Bit Devices  
 
@@ -52,3 +52,21 @@ Beta 1: TBA
 
 Create a fork of the repository, make your changes and then create a pull request.
 Please be sure to check if the pull request has been made before, before creating a new one.
+
+## Things I need for the jailbreak:
+
+**Anything you add, you will get credit for.**
+
+1. offsets. [here](https://github.com/osxusr/nalu935/blob/master/nalu935/offsets.c) and [here](https://github.com/shp0ng13/nalu935/blob/master/nalu935/offsets.h)
+
+2. gui for the jailbreak app, make one with xcode. Insert [here](https://github.com/shp0ng13/nalu935/tree/master/nalu935/Base.Iproj)
+
+3. I have provided the app icons for the app [here](https://github.com/shp0ng13/nalu935/tree/master/nalu935/Media.xcassets/AppIcon.appiconset).
+
+4. viewcontroller code for the app. [here](https://github.com/shp0ng13/nalu935/blob/master/nalu935/ViewController.h) and [here](https://github.com/shp0ng13/nalu935/blob/master/nalu935/ViewController.m)
+
+5. exploit.
+
+6. sandbox escape.
+
+6. device support code. [here](https://github.com/shp0ng13/nalu935/blob/master/nalu935/device%20support.h) and [here](https://github.com/shp0ng13/nalu935/blob/master/nalu935/device%20support.m)
