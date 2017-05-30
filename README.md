@@ -63,7 +63,7 @@ Please be sure to check if the pull request has been made before, before creatin
 
 3. I have provided the app icons for the app [here](https://github.com/shp0ng13/nalu935/tree/master/nalu935/Media.xcassets/AppIcon.appiconset).
 
-4. viewcontroller code for the app. [here](https://github.com/osxusr/nalu935/blob/master/nalu935/ViewController.h) and [here](https://github.com/shp0ng13/nalu935/blob/master/nalu935/ViewController.m)
+4. viewcontroller code for the app. [here](https://github.com/shp0ng13/nalu935/blob/master/nalu935/ViewController.h) and [here](https://github.com/shp0ng13/nalu935/blob/master/nalu935/ViewController.m)
 
 5. exploit.
 
